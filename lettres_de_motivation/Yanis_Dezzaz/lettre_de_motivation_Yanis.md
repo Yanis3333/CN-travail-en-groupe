@@ -14,3 +14,4 @@ L'ornithorynque est un animal semi-aquatique endémique de l'est de l'Australie 
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/3/32/Ornithorhynchus.jpg/1200px-Ornithorhynchus.jpg)
 
+Et nous y voila comment définir cette chose symbiose de la vie de l'univers et du reste.
